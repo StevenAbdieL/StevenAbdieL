@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @StevenAbdieL
 - 👀 I’m interested in Communication, and Entertainment.
 - 🌱 I’m currently learning Software Engineering.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Media, and Communication.
 - 📫 How to reach me @instargam:ScienceForCats
 
 <!---
